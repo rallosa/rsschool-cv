@@ -4,7 +4,7 @@
 
 ![Selfie photo Sergii Rallo Ukrainian design](./images/sergii-rallo.png)
 
-> ## Sergii Rallo
+> ## Serhii Rallo
 
 ---
 
