@@ -2,7 +2,7 @@
 
 ---
 
-![Selfie photo Sergii Rallo Ukrainian design](./images/sergii-rallo.png)
+![Selfie photo Sergii Rallo Ukrainian design](./images/serhii-rallo.png)
 
 > ## Serhii Rallo
 
